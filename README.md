@@ -1,1 +1,0 @@
-# techie08-mak
